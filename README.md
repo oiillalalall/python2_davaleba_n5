@@ -1,1 +1,0 @@
-# python2_davaleba_n5
